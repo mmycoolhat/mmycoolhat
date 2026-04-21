@@ -1,6 +1,7 @@
 ## # Intr o
 
-![image](https://github.com/user-attachments/assets/3caf91b3-49bb-416e-b176-7e4331db4cb1)
+<img width="400" height="276" alt="image" src="https://github.com/user-attachments/assets/5daefa1f-c67c-4272-9506-0cc6bce4471e" />
+
 
 kinda abour me ..
 
