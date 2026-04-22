@@ -1,6 +1,6 @@
 ## # Intr o
 
-<img width="400" height="276" alt="image" src="https://github.com/user-attachments/assets/5daefa1f-c67c-4272-9506-0cc6bce4471e" />
+   <img width="400" height="276" alt="image" src="https://github.com/user-attachments/assets/5daefa1f-c67c-4272-9506-0cc6bce4471e" />
 
 
 kinda abour me ..
