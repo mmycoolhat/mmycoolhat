@@ -1,6 +1,7 @@
 ## #  
 
- <img width="500" height="400" alt="image" src="https://github.com/user-attachments/assets/5daefa1f-c67c-4272-9506-0cc6bce4471e" />
+ <img width="500" height="278" alt="image" src="https://github.com/user-attachments/assets/85f2232d-081f-4d5f-a96f-07a93352185e" />
+
 
 
 kinda abour me ..
