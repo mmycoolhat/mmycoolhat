@@ -6,9 +6,9 @@
 
 kinda abour me ..
 
-> I like joking around and being weird ,,, 🍪 , My biggest inspos are old 2000's media and webcomics, like JTHM, Penny Arcade, Homestuck, etc. I like @ lot of sdtuff .
+> I like joking around and being weird ,,, 🍪 , My biggest inspos are old 2000's media and webcomics, like JTHM, Penny Arcade, Homestuck, etc. I like @ lot of sdtuff like history, hetalia/country humans , i alikw a lot ...
 
- > Serious note s i guess,, ,, I don't fw any harassers or anyone who just hates for no legit reason and is fr.nmean like you shouldn't care that kmuch.... General rudeness is uneeded and uh .... no spreading rumors n shit too ,, okay I gues that makes sense okay 
+ > Serious note s i guess,, ,, I don't fw any harassers or anyone who just hates for no legit reason and is fr.nmean like you shouldn't care that kmuch.... General rudeness is uneeded and uh .... no spreading rumors n shit too ,, okay I gues that makes sense okay ,, regarding  all , im free block
 
 I like drawing and messing around alalala
 
