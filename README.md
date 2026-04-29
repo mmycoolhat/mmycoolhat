@@ -12,3 +12,4 @@ kinda abour me ..
 
 I like drawing and messing around alalala
 
+<img width="765" height="416" alt="image" src="https://github.com/user-attachments/assets/8aba0dc5-3c9e-4ea9-b6aa-077bb5999197" />
